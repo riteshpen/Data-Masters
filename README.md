@@ -3,7 +3,7 @@
 Ritesh Penumatsa
 rp37458
 rp37458@utexas.edu
-riteshstem@gmail.com
+ritesh.pen@gmail.com
 
 Jonathan Munoz
 jm96258
